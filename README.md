@@ -1,3 +1,3 @@
 ## les04
 
-# wauw wat cool
+# github leren!!
